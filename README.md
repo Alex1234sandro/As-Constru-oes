@@ -22,7 +22,7 @@ Disponibilizamos calculadoras online gratuitas para auxiliar em dimensionamentos
 
 ## 📞 Contato
 - 📱 WhatsApp: (19) 99720-9201
-- 📍 Localização: Itirapina - São Paulo
+- 📍 Localização: campinas - São Paulo
 - 📧 E-mail: contato@santosconstrutora.com.br
 
 ---
